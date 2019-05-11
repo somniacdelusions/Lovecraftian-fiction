@@ -1,4 +1,5 @@
-# The Corpse of Xulub
+# Xulub's Festering Corpse
+by D. South
 
 Aeons ago, this world flourished with untold flora and fauna; tall beasts, both scaled and feathered fought each other among great ferns and tremendous plants, while our ancestors skulked as vermin beneath their feet. Then came the calamity; it came. The stars, those damnably cold and uncaring stars, unleashed upon this realm a hideous burning mass. Lighting the sky with a furious crimson, it struck. The ground broke, the seas boiled, the very sky itself was a conflagration of destruction and woe. Grand forests burned from horizon to horizon; creatures boiled until not even their bones remained; a massive, circular scar was pounded into the rock of the land.
 
